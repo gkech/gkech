@@ -1,1 +1,1 @@
- 👋 Hi, George here :coffee:
+ 👋 Hello there :coffee:
